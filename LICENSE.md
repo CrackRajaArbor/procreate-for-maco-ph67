@@ -1,4 +1,4 @@
-# 
+# Enhance Procreate for macOS with automatic Procreate for macOS Filter | custom brushes + auto-retouch, the #1 filter. Includes custom brushes and auto-retouch for a smoother and
 
 
 
